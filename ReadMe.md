@@ -10,7 +10,7 @@
 ## No. 1: AISGK
 数据量大且优质，输出结果信息较为全面，
 
-### 天眼查 [@AAAL8BOT](https://t.me/AAAL8BOT?start=NTgzNzg1NTEy)
+### 天眼查 [@AAAL9BOT](https://t.me/AAAL8BOT?start=NTgzNzg1NTEy)
 
 ## No. 1 （并列）: liemo 
 
